@@ -4,6 +4,6 @@
 > 
 > thanks for stopping by
 > 
-> 99.8% shitpost 0.2% aplha: (https://www.twitter.com/lossaddict)
+> 99.8% shitpost 0.2% αlpha: (https://www.twitter.com/lossaddict)
 > 
 > 
